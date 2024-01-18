@@ -49,6 +49,3 @@ We wish to Christ we'd never been born
 
 Oh haul, oh haul, oh haul away\
 Oh haul away and make your pay
-
-And we are Liverpool born and bred\
-We're strong in the arm but we're thick in the head
